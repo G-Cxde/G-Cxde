@@ -1,5 +1,5 @@
 👋 Hi, I’m @G-Cxde
-Dunno how lost you got in your research, but here's definetly wrong...
+Dunno how lost in your research you got, but here you are definetly wrong...
 
 but look at that zero though: 0
 <!---
